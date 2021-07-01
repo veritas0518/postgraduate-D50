@@ -1,0 +1,2 @@
+# postgraduate-D50
+Today is also an ordinary day, but my cervical spine seems to feel a bit uncomfortable. In a few days, I'm going to sign the letter of recommendation to my teacher. I don't know if I can go to a good school. It's really hard to major in computer science. It's not easy to find a job. It's also very difficult to enter a large factory. No wonder computer science is the major that everyone yearns for, People around me give me too much pressure, Java also began to increase the difficulty, I do not know if I can grasp it.
